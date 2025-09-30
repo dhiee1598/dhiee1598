@@ -18,7 +18,7 @@ I’m passionate about **Linux**, **Web Development**, and building efficient wo
 ---
 
 ## 📫 Connect with Me
-- 🌐 [Facebook Page](https://www.facebook.com/profile.php?id=61579898794664)  
+- 📘 [Facebook Page](https://www.facebook.com/profile.php?id=61579898794664)  
 - 💼 [LinkedIn](https://www.linkedin.com/in/dexter-alan-balderama-904bb9310/)  
 
 ---
